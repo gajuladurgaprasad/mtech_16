@@ -4,3 +4,6 @@ beyond the
 register
 going well tuned 
 got it fully
+live freely posted 
+going durably
+
